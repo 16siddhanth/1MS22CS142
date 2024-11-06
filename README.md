@@ -1,4 +1,4 @@
-https://pin.it/4fVVL4C8i
+![name](https://i.redd.it/3uykdwu1bjjc1.png)
 # Siddhanth Pradhan
 
 **5th Semester Computer Science and Engineering Student**  
